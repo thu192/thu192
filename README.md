@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @thu192
 - 👀 I’m interested in reading book
-- 🌱 I’m currently 
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently a recruiter :D
 - 📫 How to reach me live:sandsea192 or gmail hr@fabbi.com.vn
 
 <!---
